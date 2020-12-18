@@ -1,1 +1,1 @@
-# sociologyquinn.github.io
+### Kelly Quinn (they/she)
