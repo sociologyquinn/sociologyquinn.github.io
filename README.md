@@ -1,1 +1,1 @@
-### Kelly Quinn (they/she)
+### Kelly Quinn (she/they)
